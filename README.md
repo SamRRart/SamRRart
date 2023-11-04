@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SamRRart
+- 👀 I’m interested in videogames, drawing and PC
+- 🌱 I’m currently studing the university
